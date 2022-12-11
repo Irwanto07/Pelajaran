@@ -1,0 +1,2 @@
+# Pelajaran
+bagi ilmu
